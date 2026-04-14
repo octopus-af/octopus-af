@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou a Amanda (Mush)
+# 👋 Olá, eu sou a Mush (Amanda)
 
 🎓 Formada em Sistemas de Informação  
 🔐 Focando em Cybersecurity  
