@@ -2,4 +2,4 @@
 
 ° Formada em Sistemas de Informação  
 ° Migrando para Cybersecurity                          
-+ 𓍊𓋼𓍊𓋼𓍊
+ 𓍊𓋼𓍊𓋼𓍊
