@@ -1,11 +1,11 @@
 # Oii, me chamo Mush  ｡° ˚.° ଳ ˚ ° ˚.
 
-° Formada em Sistemas de Informação  
-° Migrando para Cybersecurity                          
+⟢ Formada em Sistemas de Informação  
+⟢ Migrando para Cybersecurity                          
  𓍊𓋼𓍊𓋼𓍊
 
 ## Habilidades
 
-° Postgresql       
-° Redes         
-° Splunk
+⟢ Postgresql       
+⟢ Redes         
+⟢ Splunk
