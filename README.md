@@ -7,7 +7,5 @@
 ## Habilidades
 
 ° Postgresql       
-
 ° Redes         
-
 ° Splunk
