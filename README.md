@@ -1,5 +1,4 @@
-# Oii  ｡° ˚.° ଳ ˚ ° ˚.
-# Me chamo Mush 
+# Oii, me chamo Mush  ｡° ˚.° ଳ ˚ ° ˚.
 
 ° Formada em Sistemas de Informação  
 ° Migrando para Cybersecurity  ⠀⠀⠀⠀⠀⠀⠀⠀⠀
