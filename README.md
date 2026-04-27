@@ -1,7 +1,7 @@
 # Oii, me chamo Mush  ｡° ˚.° ଳ ˚ ° ˚.
 
 ⟢ Formada em Sistemas de Informação  
-⟢ Migrando para Cybersecurity                          
+⟢ Cybersecurity Enthusiast                          
  𓍊𓋼𓍊𓋼𓍊
 
 ## Habilidades
