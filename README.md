@@ -1,4 +1,4 @@
-# Oii, me chamo Mush  ｡° ˚.° ଳ ˚ ° ˚.
+# Oii, me chamo Mush  
 
 ⟢ Formada em Sistemas de Informação  
 ⟢ Cybersecurity Enthusiast                          
